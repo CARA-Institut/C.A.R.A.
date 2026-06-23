@@ -19,7 +19,8 @@ This scientific curiosity was noted in a private observation by a leading resear
 Selcuk Cara is the prototype of the Renaissance figure in the 21st century. For him, the twofold validated analytical sharpness and the strategic precision of physical mastery are not disparate disciplines, but the necessary unity required for the penetration of the most complex systems. His profile represents a form of existence in which absolute mastery of the mind corresponds inseparably with the mastery of the body.
 
 
-"A millennium of weightlessness in the abstraction of AI, C.A.R.A. in between, grounding humanity in the gravity of living." 
+"A millennium of weightlessness in the abstraction of AI, 
+C.A.R.A. in between, grounding humanity in the gravity of living." 
 
 (Selcuk Cara)
 
