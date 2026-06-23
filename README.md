@@ -202,6 +202,8 @@ Contextual Authenticity Research Analysis (C.A.R.A.)
 Keywords: Transgenerational Trauma, Epigenetics, Somatic Resonance, Post-Witness Historiography, Ethical Evidence, Generative AI, Deepfake, Social Opportunism
 Abstract / Introduction
 
+-------
+
 Prologue: The Post-2035 Paradigm - A Strategic Rationale
 
 The Epistemic Failure of Traditional Historiography 
