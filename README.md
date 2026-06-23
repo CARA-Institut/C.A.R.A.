@@ -230,8 +230,8 @@ We require this „biological archive“ to secure the truth for future generati
 
 A Neurophysiological Diagnostic Instrument for the Generation of Ethical Evidence in the Post-Witness Era
 
-This manuscript establishes the Contextual Authenticity Research Analysis (C.A.R.A.) method as the requisite scientific paradigm for the post-witness era. 
-As global survivor populations are projected to decline to approximately 66,000 by 2035, the C.A.R.A. method fundamentally redefines historical sites:
+This manuscript establishes the Contextual Authenticity Research Analysis (C.A.R.A.) as the requisite scientific paradigm for the post-witness era. 
+As global survivor populations are projected to decline to approximately 66,000 by 2035, C.A.R.A. fundamentally redefines historical sites:
 Shifting their status from passive relics to active Primary Data Matrices (PDM).
 Methodological validation was achieved through the neurophysiological extraction of unrecorded data at the epicenters of National Socialist ideology:
 The former Nazi Party Rally Grounds in Nuremberg (the locus of the Nuremberg Laws), Theresienstadt (deconstruction of ,“model orchestra“ propaganda), 
@@ -250,11 +250,11 @@ and the Neural Necessity of the Singularity
 1.1 The Epistemic Rupture of 2035
 
 In 2026, Holocaust and Genocide Studies operate at a point of irreversible rupture. While traditional academia often remains tethered to discursive repetition, demographic reality dictates a terminal point for biological testimony. By 2035 - less than a decade away - the global community will face a state without scientific precedent: 
-The absolute cessation of verifiable truth provided by the living witness. As survivor populations are projected to decline by 70% by 2035, the primary corrective instance of historiography will vanish. The C.A.R.A. method intervenes here to prevent history from becoming a „negotiable mass“ vulnerable to the algorithmic opportunism of the digital age.
+The absolute cessation of verifiable truth provided by the living witness. As survivor populations are projected to decline by 70% by 2035, the primary corrective instance of historiography will vanish. C.A.R.A. intervenes here to prevent history from becoming a „negotiable mass“ vulnerable to the algorithmic opportunism of the digital age.
   
 1.2 Neural Infrastructure (IQ 185+) and Universal Legitimacy
 
-The development of a methodology capable of bridging this rupture defies fragmented academic labor. The C.A.R.A. method is the result of fifteen years of interdisciplinary research, requiring a synthesis capacity that transcends standard metrics. A validated IQ of 185+ served as the essential neural hardware for the high-performance, real-time synthesis of scientific, aesthetic, and phenomenological ontologies. This cognitive singularity (the „1“) enables a convergent academic and physical genesis:
+The development of a methodology capable of bridging this rupture defies fragmented academic labor. C.A.R.A. is the result of fifteen years of interdisciplinary research, requiring a synthesis capacity that transcends standard metrics. A validated IQ of 185+ served as the essential neural hardware for the high-performance, real-time synthesis of scientific, aesthetic, and phenomenological ontologies. This cognitive singularity (the „1“) enables a convergent academic and physical genesis:
 
 a) Philosophical-Legal Synthesis:
 Integrating the discourse-ethical integrity of the Jürgen Habermas school with the structural logic of evidentiary proof from Legal Science.
@@ -263,7 +263,7 @@ b) Somatic-Aesthetic Mastery:
 Selcuk Cara’s performance of principal roles in Richard Wagner’s „Der Ring des Nibelungen§ and „Die Meistersinger von Nürnberg“ - works central to the National Socialist aesthetic - allowed for a physical „internal dissection“ of the material. This mastery was further applied to Giuseppe Verdi’s Messa da Requiem in Theresienstadt. At the invitation of the World Jewish Congress (WJC), Selcuk Cara utilized his experience as a Bass Soloist to physically deconstruct the „Model Ghetto“ propaganda, exposing the staged reality from the perspective of neuro-vocal resonance.
 
 1.3 The Crime Scene as Active Evidence
-The final legitimation of the C.A.R.A. method lies in its unique capacity as a „trusted interface“. 
+The final legitimation of C.A.R.A. lies in its unique capacity as a „trusted interface“. 
 That descendants of Auschwitz musicians and private T-4 archivists have entrusted Selcuk Cara with primary data withheld from state institutions for eighty years 
 proves the method’s efficacy. C.A.R.A. transforms the historical crime scene into a Primary Data Matrix (PDM), where physical reactions serve as unmanipulable evidence in the post-witness era.
 
