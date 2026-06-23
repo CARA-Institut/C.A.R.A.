@@ -136,7 +136,7 @@ C.A.R.A.
 
 Prologue: The Post-2035 Paradigm - A Strategic Rationale
 
-1. Contextual Authenticity Research Analysis (C.A.R.A.)
+Contextual Authenticity Research Analysis (C.A.R.A.)
 A Neurophysiological Diagnostic Instrument for the Generation of Ethical Evidence in the Post-Witness Era
 
 Chapter 1
@@ -216,6 +216,9 @@ Conclusion
 The methodology is demanding and elite in its intellectual requirements, yet it remains the solitary functioning bulwark against the digital distortion of the Holocaust. Institutions like the Mandel Center will recognize this as a „challenging necessity“. 
 There will be institutional friction, but the ultimate realization will prevail: 
 We require this „biological archive“ to secure the truth for future generations. 
+
+[ https://www.selcuk-cara.com/index.php?topic=FOUNTAIN ]
+
 
 Epilogue
 
