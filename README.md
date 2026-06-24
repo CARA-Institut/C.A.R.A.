@@ -27,9 +27,7 @@ Selcuk Cara is the prototype of the Renaissance figure in the 21st century. For 
 
 
 "A millennium of weightlessness in the abstraction of AI, 
-C.A.R.A. in between, grounding humanity in the gravity of living." 
-
-(Selcuk Cara)
+C.A.R.A. in between, grounding humanity in the gravity of living." (Selcuk Cara)
 
 ------
 
